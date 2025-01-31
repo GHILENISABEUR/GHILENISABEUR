@@ -29,7 +29,7 @@ Additionally, I am an **AI Developer**, exploring the fields of **machine learni
 
 ### 🔹 Let's Connect!  
 - 🌐 [Portfolio](#) (Coming Soon)  
-- 📧 [Email](ghilanisaber191.com)  
+- 📧 [Email] ghilanisaber191.com 
 - 💼 [LinkedIn](#https://www.linkedin.com/in/ghilani-saber?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BKmmM906PQHmpaSp%2Bwp4ymw%3D%3D)  
 - 🏆 [GitHub](https://github.com/GHILANISABEUR)  
 
